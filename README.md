@@ -3,10 +3,10 @@
 - 🌱 I’m currently learning digital marketing ( Community Manager ) 
 - 💞️ I want to collaborate in several projects especially in digital marketing ! Good luck for me!  
 - 📫 How to reach me : raherinandraina12ajf@gmail.com
-
+more about SAYNA / https://sayna.io
 
 <!---
 Andraina6/Andraina6 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
---->
-more about SAYNA / https://sayna.io
+---> To the pleasure of exchanging and/or collaborting together <---
+
